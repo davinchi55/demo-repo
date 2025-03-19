@@ -1,3 +1,9 @@
 # demo
 
 some description!
+
+# SAWINOM ENTERPRISES
+
+SAMMY MUCHIRA
+EDWIN WERU
+GERSHOM NJOGU
